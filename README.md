@@ -1,0 +1,2 @@
+# Lenin
+komcsi oldal
